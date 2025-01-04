@@ -1,0 +1,1 @@
+# Portfolio-Aktivit-t-Einen-Vorfall-mit-dem-Tagebuch-eines-Vorfallbearbeiters-dokumentieren
